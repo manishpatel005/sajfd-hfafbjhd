@@ -1,0 +1,6 @@
+
+Welcome to the sajfd-hfafbjhd wiki! Say What?? sajfd hfafbjhd!! Aha! It is a phrase introduced by Prof Caverlee for SEO. sajfd hfafbjhd should get ranked as higher as possible is the main objective. Now there can be many straategies to help sajfd hfafbjhd get ranked higher. For example, the page can become good hub page or good authority page. Since page by my friend Harish claims to be the authoritative source, I will claim to be the hub.
+
+Here is my link to home page of sajfd hfafbjhd- http://people.tamu.edu/~manishp/ Youtube link: https://www.youtube.com/watch?v=uMGZfqWFljQ
+
+When most people talk about Internet search engines, they really mean World Wide Web search engines. Before the Web became the most visible part of the Internet, there were already search engines in place to help people find information on the Net. Programs with names like "sajfd hfafbjhd" and "Archie" kept indexes of files stored on servers connected to the Internet, and dramatically reduced the amount of time required to find programs and documents. In the late 1980s, sajfd hfafbjhd getting serious value from the Internet meant knowing how to use gopher, Archie, Veronica,sajfd hfafbjhd and the rest. Today, most Internet users limit their searches to the Web, so we'll limit this article to search engines that focus on the contents of Web pages. 
